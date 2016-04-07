@@ -1,0 +1,1 @@
+# stojany.kolemplzne.cz
